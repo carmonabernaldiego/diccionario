@@ -1,0 +1,1 @@
+# Diccionario de Antónimos
